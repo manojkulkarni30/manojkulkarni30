@@ -4,4 +4,4 @@ I`m Manoj Kulkarni. I love to interact with community, share knowledge and learn
 
 You can find me at:
 
-[Blog](http://manojkulkarni.io) | [Twitter](https://twitter.com/manojkulkarni30/) | [LinkedIn](https://www.linkedin.com/in/manojkulkarni30/) 
+[Twitter](https://twitter.com/manojkulkarni30/) | [LinkedIn](https://www.linkedin.com/in/manojkulkarni30/) 
